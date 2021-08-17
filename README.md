@@ -4,4 +4,4 @@ I’m interested in Theoretical Physics、Media Processing、Network Communicati
 
 I’m currently learning electrochemical corrosion, collaborate on QuQing group in YunNan University
 
-Reach me at [Github](https://github.com/panxiuwen/)   [Zhihu](https://www.zhihu.com/people/gu-ao-de-zhan-dou-zhe)   [Gitee](https://gitee.com/sean982202733/)   [music163](https://music.163.com/#/user/home?id=70816221/)
+Reach me at [Github](https://github.com/panxiuwen/)   [Zhihu](https://www.zhihu.com/people/gu-ao-de-zhan-dou-zhe)   [Gitee](https://gitee.com/sean982202733/)   [music163](http://music.163.com/m/user/home?id=70816221)
